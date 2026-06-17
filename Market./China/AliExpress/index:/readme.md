@@ -1,1 +1,4 @@
 - https://www.aliexpress.com/item/1005011580730736.html
+- https://www.aliexpress.com/item/1005011580730736.html
+- https://www.aliexpress.com/item/1005012382683301.html
+- https://www.aliexpress.com/item/1005007605244061.html
